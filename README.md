@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ThuuuUyeennn
 - 👀 I’m interested in music 
-- 🌱 I’m currently learning high school
+- 🌱 I’m currently learning junior high school 
 - 💞️ I’m looking to collaborate on internet 
 - 📫 How to reach me make friend
 
